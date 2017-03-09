@@ -1,0 +1,1 @@
+# seya3302.github.io
